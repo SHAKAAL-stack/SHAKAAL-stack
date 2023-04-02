@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SHAKAAL-stack
-- 👀 I’m interested in disaster
+- 👀 I’m interested in *
 - 🌱 I’m currently learning  data structure and algorithim ...
 - 💞️ I’m looking to collaborate on nothing...
 - 📫 How to reach me ,mail me yadhava144@gmail.com
