@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SHAKAAL-stack
-- 👀 I’m interested in ᵃʸᵉ ˡᵃᵘᵛᵉ ᵒʸᵉu.. 💐🌹😋
+- 👀 I’m interested in 
 - 🌱 I’m currently learning  data structure and ᵃʸᵉ ˡᵃᵘᵛᵉ ᵒʸᵉu.. 💐🌹😋
 - 💞️ I’m looking to collaborate on ᵃʸᵉ ˡᵃᵘᵛᵉ ᵒʸᵉu.. 💐🌹😋
 - 📫 How to reach me ,mail me yadhava144@gmail.com
