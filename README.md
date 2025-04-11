@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SHAKAAL-stack
+- 👋 Hi, I’m @sAKAAL-stack
 - 👀 I’m interested in 
 - 🌱 I’m currently learning  data structure and ᵃʸᵉ ˡᵃᵘᵛᵉ ᵒʸᵉu.. 💐🌹😋
 - 💞️ I’m looking to collaborate on ᵃʸᵉ ˡᵃᵘᵛᵉ ᵒʸᵉu.. 💐🌹😋
